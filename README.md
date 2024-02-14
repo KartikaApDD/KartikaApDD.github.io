@@ -4,4 +4,5 @@ My name is Kartika and I'm 15 years old now and I'm from Indonesia. I like do so
 ## What I like to do
 I like making an art but I can make an art just when I have my mood on because if I have no mood my art would looks really bad and that's why I didn't choose art this year even I like to drawing or painting because I don't want to hate one of my favourtie hobby. I like to cooking too because sometimes I help my mom in the kitchen. The last one is editing, I like to make a little animaiton when I have free times even it really hard but I still like to make an animation because it's fun, the best part is when I need to re-draw it.
 ## Why I choose digital technology this year?
-I choose digital this year because of some reasons like I admiring my brother because he can made something that really in
+I choose digital this year because of some reasons like I admiring my brother because he can made something that really interesting (like a web) and I think make some stuff like this kinda cool even it's really stressful for me because I still need to more learn about something like this.
+
